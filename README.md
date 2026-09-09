@@ -1,1 +1,0 @@
-# sakhmzingxili.github.io
